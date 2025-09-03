@@ -23,4 +23,4 @@
 
 ## 🔑 Доступ
 Если вам нужны **логин и пароль**, заполните форму:  
-👉 [Google Форма](https://forms.gle/HuscuCD7rnQP25C4X6)
+👉 [Google Форма](https://forms.gle/oZ57Nr6pf5sFqqPS8)
