@@ -23,4 +23,4 @@
 
 ## 🔑 Access
 If you need a **login and password**, please fill in this form:  
-👉 [Google Form](https://forms.gle/HuscuCD7rnQP25C4X6)
+👉 [Google Form](https://forms.gle/oZ57Nr6pf5sFqqPS8)
