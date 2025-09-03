@@ -23,4 +23,4 @@
 
 ## 🔑 Toegang
 Als je een **login en wachtwoord** nodig hebt, vul dan dit formulier in:  
-👉 [Google Formulier](https://forms.gle/HuscuCD7rnQP25C4X6)
+👉 [Google Formulier](https://forms.gle/oZ57Nr6pf5sFqqPS8)
